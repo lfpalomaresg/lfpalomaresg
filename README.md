@@ -20,4 +20,4 @@ Llevo la dirección de zona de un grupo hotelero en Andalucía y, en paralelo, c
 ## Dónde encontrarme
 
 - 🌐 [blindbeds.com](https://blindbeds.com)
-- 💼 LinkedIn: [Luis Francisco Palomares Gamarra](https://www.linkedin.com/)
+- 💼 LinkedIn: [Luis Francisco Palomares Gamarra](https://www.linkedin.com/in/luis-francisco-palomares-gamarra-5b468712/)
